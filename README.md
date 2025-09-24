@@ -1,4 +1,4 @@
-![WhatsApp Image 2025-09-24 at 10 02 32_0fe8637d](https://github.com/user-attachments/assets/e5ce4b99-0298-4f00-a157-bb6fa61c33c3)# Smart India Hackathon Workshop
+Smart India Hackathon Workshop
 # Date:24/09/2025
 ## Register Number:25016414
 ## Name:R.Manobala
